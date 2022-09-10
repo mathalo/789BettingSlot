@@ -1,0 +1,16 @@
+{
+  "name": "789Betting เครดิตฟรี 100 ",
+  "theme": "syntax",
+  "version": "1.0.199",
+  "description": "ข้อดีของ 789Betting ดีกว่าเว็บอื่นอย่างไร",
+  "keywords": [
+    "789Betting เครดิตฟรี 100",
+    "เครดิตฟรี 100",
+    "superslot เครดิตฟรี 100"
+  ],
+  "repository": "https://github.com/789bn/bb",
+  "license": "MIT",
+  "engines": {
+    "atom": ">=1.0.0 <2.0.0"
+  }
+}
