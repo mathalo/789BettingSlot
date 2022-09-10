@@ -1,10 +1,10 @@
-![ScreenShot](https://www.789betnows.com/wp-content/uploads/2022/03/789betnows-logo-1024x191.png.webp)
+![ScreenShot](https://www.789betnows.com/wp-content/uploads/2022/03/Logo-789-Betnow-Background-1536x462-1-1024x308.png.webp)
 
 # 789BETTING หรือ 789BETNOWS ดีกว่าอย่างไร?
 
 ## 👉 [789Betting](https://www.789betnows.com/)
-## 👉 [ฝาก 300 รับ 400](https://www.789betnows.com/)
 ## 👉 [สมัคร 789Bet](https://www.789betnows.com/register/)
+## 👉 [ฝาก 300 รับ 400](https://www.789betnows.com/promotion/)
 ## 👉 [ฝากถอนไม่มีขั้นต่ำ](https://www.789betnows.com/deposit-withdraw/)
 
 ## 789BET คาสิโนสดสตรีมมิ่ง
